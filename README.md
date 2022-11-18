@@ -7,5 +7,12 @@ for my after graduation certificate, I learn a lot of knowledge about data analy
 Business skills
 For the knowledge of data analytics, I have learnt
 
-Making visualization using different tools, for example Tableau, PowerBI
-Making statistical analysis in R studio and Python
+Making visualization using different tools, for example Tableau, PowerBI, 
+Making statistical analysis in R studio and Python, 
+learn the whole process how to deal with data, 
+
+but also in the business area, I have learnt
+
+The knowledge about the project management, 
+The ethical of the business
+The knowledge about business analysis
