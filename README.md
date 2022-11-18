@@ -16,3 +16,6 @@ but also in the business area, I have learnt
 The knowledge about the project management, 
 The ethical of the business
 The knowledge about business analysis
+
+By these knowledge, I can help the company make the analysis plan for the products or service, also I can assist the project managenment team to complete the task.
+Most analysis job are done by team, during the studying in the college, we have a lot of group work, I am able to listen to my colleagues' needs, respect others, and make compromises. I can lead when it's called for, but I can also contribute equally to the team when it's appropriate.
